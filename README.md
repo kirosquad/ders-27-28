@@ -1,1 +1,1 @@
-# ders-27-28
+sehv yazdim
